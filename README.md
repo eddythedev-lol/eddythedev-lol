@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Eddy!
+- 👀 I’m interested in developing games, and making models.
+- 🌱 I’m currently learning Blender.
+- 💞️ I’m looking to collaborate on Gorilla Tag copies.
+- 📫 How to reach me contact my email: eddythedevofunity@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Ive made multiple games.
